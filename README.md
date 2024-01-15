@@ -11,3 +11,7 @@ Während der Mauser und bei Großpinguinen (Aptenodytes), Adeliepinguinen (Pygos
 Für Untersuchungen darüber, dass sich im Darm von defäkierenden Pinguinen Drücke von bis zu einer halben Atmosphäre (450 Torr) entwickeln[6], wurden drei Wissenschaftler 2005 mit dem Ig-Nobelpreis ausgezeichnet.[7]
 
 Ihren Wasserbedarf decken Pinguine hauptsächlich aus dem Meer. Überschüssiges Salz wird durch spezielle Salzdrüsen, die oberhalb der Augen liegen, wieder ausgeschieden
+
+## Lebensraum
+
+- Der eigentliche Lebensraum der Pinguine ist das offene Meer, an das sie anatomisch hervorragend angepasst sind. Lediglich zum Brüten und zum Federwechsel kehren sie an Land zurück; dort leben sie an den felsigen Küsten der südlichen Kontinente, in kühlen Wäldern der gemäßigten Zonen, an subtropischen Sandstränden, auf weitgehend vegetationslosen Lavafeldern, subantarktischem Grasland oder auf dem Eis der Antarktis. Während die tropischen Arten standorttreu sind, entfernen sich andere im Winter teilweise mehrere hundert Kilometer vom Ozean, um zu ihren Brutgebieten zu gelangen.
